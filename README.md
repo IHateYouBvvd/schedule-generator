@@ -1,1 +1,1 @@
-Note that the total amount of class minutes per week should always be 1600
+sometimes it works, sometimes it doesn't i dont know
